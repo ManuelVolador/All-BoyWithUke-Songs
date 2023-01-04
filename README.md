@@ -81,7 +81,7 @@ You fucked up bad now you're wasting my time
 
 
 
-#She Said No
+# She Said No
 
 Stood together outside, I don't even know what
 Was going through my mind, now I think it was love
@@ -149,7 +149,7 @@ Yeah, she said no...
 
 
 
-#Far Away
+# Far Away
 
 There's a hundred miles from you and I
 And so many signs to forget you
@@ -207,7 +207,7 @@ Da, da, da-da-da...
 
 
 
-#Understand
+# Understand
 
 Girl, I hope you understand I
 Wanted to hold your hand, but I can't
@@ -285,7 +285,7 @@ Removed yourself outside my dreams...
 
 
 
-#Let Me Down
+# Let Me Down
 
 Baby, let's pack our bags and head to wherever
 Toss these plans out straight through the door
@@ -345,7 +345,7 @@ Da-da-da, da-da-da, da-da...
 
 
 
-#Prairies (feat. mxmtoon)
+# Prairies (feat. mxmtoon)
 
 Alright, final take
 
@@ -414,7 +414,7 @@ Haven't been eating lately, and I haven't been in class...
 
 
 
-#Contigo (feat. Powfu)
+# Contigo (feat. Powfu)
 
 Things weren't ever meant to end this way
 I know I fucked it up enough, what can I say?
@@ -472,7 +472,7 @@ But what more is there to chase?...
 
 
 
-#Heat of Ice
+# Heat of Ice
 
 I thought there was something wrong with my life
 I thought I was hopeless, thinking I'm out of time
@@ -547,7 +547,7 @@ Your heart of i-...
 
 
 
-#Scared of the Dark
+# Scared of the Dark
 
 Don't you tell me you're fine
 I can tell when you're lying
@@ -623,7 +623,7 @@ You can tell me you're tired
 
 
 
-#Long Drives
+# Long Drives
 
 Yeah, I can't do these long drives sittin' in the back seat
 Thinkin' 'bout that one night when the world caught fire, baby
@@ -681,7 +681,7 @@ Please, don't drive away from me...
 
 
 
-#Loafers (prod. Sarcastic Sounds)
+# Loafers (prod. Sarcastic Sounds)
 
 I keep my windows open, front doors broken, I lost my keys
 I'm passed out on my futon, gave back your DVD's
@@ -769,7 +769,7 @@ you're in my melatonin dreams
 
 
 
-#LoveSick
+# LoveSick
 
 Hey, I heard you're doing better, never knew you as a quitter
 And I'm glad you're doing okay
@@ -819,7 +819,7 @@ Can't get you off of my mind...
 
 
 
-#Toxic
+# Toxic
 
 All my friends are toxic, all ambitionless
 So rude and always negative
@@ -882,7 +882,7 @@ Baby, oh, I'll make you know, I'll make you know, oh....
 
 
 
-#letter for my future ex
+# letter for my future ex
 
 I hope you're feeling okay
 Because I don't know if I could say the same thing
@@ -925,7 +925,7 @@ But I know I'm about to...
 
 
 
-#Bad luck
+# Bad luck
 
 I got 24 minutes to finish all of my sentences
 To be dependent to medicine while I saw you running away
@@ -984,7 +984,7 @@ Yeah, I think I'm fucked...
 
 
 
-#Kind of Sick of Life
+# Kind of Sick of Life
 
 I don't wanna take out loans, I don't wanna be at home
 I don't wanna say goodbye and I don't wanna be alone
@@ -1029,7 +1029,7 @@ Yeah, I ignore it of course...
 
 
 
-#Bok Choy
+# Bok Choy
 
 Oh, I'm just a lost boy, I'm suffering
 I'm stuck with the bok choy and I miss my friends
@@ -1050,7 +1050,7 @@ Oh, I can feel that I'm close...
 
 
 
-#Forget Me
+# Forget Me
 
 Too slow for the left lane, too fast for the right train
 I'm still kicking up dust, I've been eating all Friday
@@ -1101,7 +1101,7 @@ Yeah...
 
 
 
-#Haha, Hi
+# Haha, Hi
 
 I think we talked about a TV show that you liked
 Something I forget 'cause I was thinking, "Whoa, are her eyes real?"
@@ -1163,7 +1163,7 @@ It's a little squeaky, I try to make it sound deeper for you, my baby...
 
 
 
-#Shy
+# Shy
 
 Hi, hello
 I'm quite a shy fellow
@@ -1211,7 +1211,7 @@ Looking up tutorials on YouTube...
 
 
 
-#Hazel Eyes
+# Hazel Eyes
 
 Can't get you out of my gaze, and
 Can't feel my legs when you're around
@@ -1272,7 +1272,7 @@ It's your hazel eyes...
 
 
 
-#Two Moons
+# Two Moons
 
 Two moons, I can feel myself start catching on fire
 But you knew, yeah, you kept it to yourself, to yourself
@@ -1336,7 +1336,7 @@ I close my door, I'm left with less...
 
 
 
-#Psycho
+# Psycho
 
 Tobi tells me lies when I'm sleep-deprived
 Tobi says that I'm the worst of my kind
@@ -1369,7 +1369,7 @@ They tell me I'm a psycho, psycho...
 
 
 
-#Out of Tune
+# Out of Tune
 
 No matter what I do
 I can't love because of you
@@ -1432,7 +1432,7 @@ I can't look you in your eyes again...
 
 
 
-#Sleep Deprived
+# Sleep Deprived
 
 Is it wrong that I still like you, baby?
 Is it wrong that I write you songs?
@@ -1459,7 +1459,7 @@ I think, I think...
 
 
 
-#Head Song
+# Head Song
 
 Ayo, send this to your girlfriend or your boyfriend
 La-la-la-la-la
@@ -1527,7 +1527,7 @@ Tе lo dije, hasta luego
 
 
 
-#Animal Crackers
+# Animal Crackers
 
 I have Animal Crackers
 And the birthday cake that I bought from Walmart
@@ -1562,7 +1562,7 @@ I bite my tongue, I hope that you would come, I can't breathe...
 
 
 
-#tired of wanting you
+# Tired of wanting you
 
 I'm not sad, I'm not tired
 But I feel I'm bad
@@ -1604,7 +1604,7 @@ Maybe in another universe...
 
 
 
-#Route 9
+# Route 9
 
 Funny that I fall apart
 When I streamline route 9 with my car, I scream
@@ -1654,7 +1654,7 @@ I'm a sex machine, in my dreams (leave)...
 
 
 
-#Lost
+# Lost
 
 (It's not stained, well, it looks stain
 What's with all the clothes on the ground
@@ -1703,7 +1703,7 @@ I just wanna be around...
 
 
 
-#Blurry Nights
+# Blurry Nights
 
 You said that you love me
 But you told a lie
@@ -1758,7 +1758,7 @@ But, I'll get over you...
 
 
 
-#Zoning Out
+# Zoning Out
 
 One, two, three, four
 
@@ -1815,7 +1815,7 @@ I'm ferociously impotent, underneath the streetlight, oh...
 
 
 
-#2.9 Miles Away
+# 2.9 Miles Away
 
 I don't wanna go alone into my bed
 Can you let me use your shoulder for my head
@@ -1845,7 +1845,7 @@ I don't want you to be 2.9 miles away
 
 
 
-#I wish
+# I wish
 
 I wish I was in your class
 I only see you in the halls
@@ -1900,7 +1900,7 @@ Oh, baby, I won't make a sound...
 
 
 
-#I won’t let you go
+# I won’t let you go
 
 Where do we go in the middle of June?
 Night is over, I mean, what can I do?
@@ -1943,7 +1943,7 @@ I been a mess, but I don't think you're mine...
 
 
 
-#Lovely
+# Lovely
 
 We kissed under the stars so far away
 We could see Mars
@@ -2005,7 +2005,7 @@ Lovely that I get to hold it for a while...
 
 
 
-#Letter for my bed
+# Letter for my bed
 
 Sorry, please excuse me for the mess
 I promise it's a temporary issue
@@ -2046,7 +2046,7 @@ I can't say no, it's true
 
 
 
-#Just Let Me Go
+# Just Let Me Go
 
 Baby, I don't want to say
 I want you to be okay
@@ -2082,7 +2082,7 @@ I'll see you soon, or not, I'll set you free...
 
 
 
-#So cold
+# So cold
 
 Lately my ambitions don't
 Faze me, birthday wishes, oh
@@ -2117,7 +2117,7 @@ When I'm underneath the sun...
 
 
 
-#Galaxy
+# Galaxy
 
 I wonder why
 I feel I'm on top of the moon
@@ -2153,7 +2153,7 @@ Of stars and Mars and planets in the sky (My galaxy, galaxy)...
 
 
 
-#Nihilist
+# Nihilist
 
 I live in the future in my head
 Wish I wasn't alone in my bed
@@ -2192,7 +2192,7 @@ And I'm nihilistic...
 
 
 
-#Where do we go (uke)
+# Where do we go (uke)
 
 Where do we go?
 In the middle of june
@@ -2251,7 +2251,7 @@ Oh just set me free
 
 
 
-#Fifteen hours (uke)
+# Fifteen hours (uke)
 
 I got fifteen hours
 No mind, no flowers from here
@@ -2280,7 +2280,7 @@ Oh, how the numbers, they don't end
 
 
 
-#Have you ever wonder like I do
+# Have you ever wonder like I do
 
 I like to think that I know what to do
 With the thoughts
@@ -2345,7 +2345,7 @@ Wake up next to you...
 
 
 
-#I dunno
+# I dunno
 
 I, thought maybe if I took the lead
 Thought maybe if I stopped to breath
@@ -2373,7 +2373,7 @@ I hope I just don't drown (Woah)
 
 
 
-#Sleep paralysis
+# Sleep paralysis
 
 It's 3 A.M
 I can't see anything
@@ -2408,7 +2408,7 @@ The door looks nice and so does the floor...
 
 
 
-#Wow je suis tellement créatif
+# Wow je suis tellement créatif
 
 Listen closely
 I'm gonna ask you once
@@ -2432,7 +2432,7 @@ But really, just tell me how your day went...
 
 
 
-#Late Nite Snacks
+# Late Nite Snacks
 
 I'm so hungry when it gets late
 I'll have a dinner for two
