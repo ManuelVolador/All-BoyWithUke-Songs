@@ -545,6 +545,70 @@ Your heart of i-...
 
 
 
+# IDGAF (ft. Blackbear)
+
+You were caught in a lie, said it with your eyes
+Said to all my homies that you weren't even mine
+You didn't think twice, got a heart made of ice
+And that shit hit me, did me dirty
+I never asked why and I never did cry
+I never told another how I felt inside
+My demons don't hide when I'm dreaming at night
+And I won't mislead you, you'll miss me
+
+'Cause I don't give a fuck about you no more
+Give me back my hoodies, or I'm kicking down doors
+You weren't even pretty, looking back, and I'm sure
+You still miss me, that's so funny
+I don't give a fuck about you, you swore
+You would never talk about me before
+You lied looking filthy in your ugly jean shorts
+You still kissed me, now shit's history (yeah)
+
+I don't mind if we speak again
+I don't wanna be cool, I don't wanna be friends
+Let me have a life, with my homies it was flirty
+Filled me up with lies, and you did me so dirty
+'Cause I don't give a fuck about you no more
+Left me bleeding with my heart on the floor
+You were never really mine, I was never really yours
+With the demon on my shoulder, I'm just trying to ignore
+And I don't give a shit about your fake ass friends
+Hollywood Hills, where we play pretend
+I don't wanna say I'm sorry, I don't wanna make amends
+I will never make a mistake like you again
+
+'Cause I don't give a fuck about you no more
+Give me back my hoodies, or I'm kicking down doors
+You weren't even pretty, looking back, and I'm sure
+You still miss me, that's so funny
+I don't give a fuck about you, you swore
+You would never talk about me before
+You lied looking filthy in your ugly jean shorts
+You still kissed me, now shit's history
+
+Regardless you're so heartless
+Let my heart into your darkness
+Hid the truth behind your harmless pretty face (aww)
+And I know you're running out of other options
+Leaving Iin your head rent free, a neurotoxin
+And I wake up every morning with a smile in my face
+Knowing full well you were put up for adoption
+Oh shit, yeah, I went there but honestly, I don't care
+You never tried to play fair with me
+Left me broken with scars, making all these remarks
+So now this is the part where I leave
+
+'Cause I don't give a fuck about you no more
+Give me back my hoodies, or I'm kicking down doors
+You weren't even pretty, looking back, and I'm sure
+You still miss me, that's so funny
+I don't give a fuck about you, you swore (you swore)
+You would never talk about me before (before)
+You lied looking filthy in your ugly jean shorts
+You still kissed me, now shit's history...
+
+
 
 
 # Scared of the Dark
