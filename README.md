@@ -2,6 +2,113 @@
 
 Probably the lyrics to most BoyWithUke songs
 
+# Nosedive
+
+We're all grown up, we're all so lost
+Nothing has prepped us for this life
+It's like we don't know why
+Nosediving from the high
+We're all grown up, we're all so lost
+Nothing has prepped us for this life
+It's like we don't know why
+Nosediving from the high
+
+I won't let the memories fade
+Hazel eyes and summer shades
+Hair on fire, hand grenades
+I won't get up out my bed
+I can't get you out my head
+I hope I don't end up dead
+
+Oh, no
+I'm sick of convеrsations in the dark
+I don't know where you arе
+
+We're all grown up, we're all so lost
+Nothing has prepped us for this life
+It's like we don't know why
+Nosediving from the high
+We're all grown up, we're all so lost
+Nothing has prepped us for this life
+It's like we don't know why
+Nosediving from the high
+
+Nosediving, nosediving from the high
+Nosediving, nosediving from the high
+
+No matter where I go, I can never be alone
+I can open up my phone but I can't open up my throat
+'Cause my thoughts will overflow, they been praying on my lows
+I know how to lie but I don't know how to cope
+
+Oh, no
+I'm sick of conversations in the dark
+I don't know where you are
+
+We're all grown up, we're all so lost
+Nothing has prepped us for this life
+It's like we don't know why
+Nosediving from the high
+We're all grown up, we're all so lost
+Nothing has prepped us for this life
+It's like we don't know why
+Nosediving from the high
+
+I don't wanna fake it
+I just have to make it up along as it goes
+I don't wanna take it
+I just have to make it up along as it goes
+
+Nosediving, nosediving from the high
+Nosediving, nosediving from the high
+Nosediving, nosediving from the high
+Nosediving, nosediving from the high
+
+
+
+
+# idtwcbf (friends)
+
+Ah, oh, no, no, no, no, ooh, oh
+Ah, no, no, no, no
+Half of my heart wants what we had again
+Falling apart thinkin', "What could've been?"
+Don't make it harder than it has to be
+Baby, please, I don't think we can be friends
+(I don't think we can, we can)
+Half of my heart wants what we had again (we can, we can)
+Falling apart thinkin', "What could've been?"
+Don't make it harder than it has to be
+Baby, please, I don't think we can be friends
+(I don't think we can, we can)
+I just wanna stop, had enough, out of love and out of luck
+I don't wanna give a fuck about my feels, dozin' off
+Emotionally uninvested, resting for the day to come
+Try my hardest not to run away from everything I've done
+But I'm looking back, ignoring facts
+I see two moons but walk six paths
+Inside my head, I'm going mad for you
+Half of my heart wants what we had again (we can, we can)
+Falling apart thinkin', "What could've been?"
+Don't make it harder than it has to be
+Baby, please, I don't think we can be friends
+I just wanna go, I just wanna go (go, go, go)
+I wanna take it slow (oh, oh, oh, take it slow)
+I just wanna go, I just wanna go (go, go, go)
+I wanna take it slow (oh, oh, oh, take it slow)
+Half of my heart wants what we had again (we can, we can)
+Falling apart thinkin', "What could've been?"
+Don't make it harder than it has to be
+Baby, please, I don't think we can be friends
+(I don't think we can, we can)
+Ah, oh, no, no, no, no
+(I don't think we can, we can)
+Ah, no, no, no, no
+(I don't think we can be friends)
+
+
+
+
 # Rockstar
 
 I just wanna be an all-star
